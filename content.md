@@ -14,3 +14,7 @@ These stats represent my dedication and growth as a soccer player striving to re
 --- 
  🙏 **Thank You for Reading!** 
 ---
+
+Learn more about me below:
+
+ [Learn more about Christiano Ronaldo](https://www.fifa.com/fifaplus/en/players/cristiano-ronaldo) 
